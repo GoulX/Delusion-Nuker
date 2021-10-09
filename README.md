@@ -14,4 +14,4 @@ https://www.youtube.com/watch?v=GK1xuoVLUf8&t=33s
 # Owners
 tiktok; Controlledyou                                                                                                                    
 youtube; illusion                                                                                                                    
-Discord; Delusion#1311                                                                                                                    
+Discord; Delusion#0642                                                                                                                   
